@@ -14,7 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-功不唐捐
 
 
 所谓万丈深渊，跳下去，也可以说是前程万丈。
