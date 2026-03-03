@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-江小凡,你的喝水时间到了! 按时喝水,规律作息.
+it's time for you to drink water! Drink water on time and maintain a regular schedule.
 
